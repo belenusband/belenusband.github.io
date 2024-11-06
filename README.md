@@ -1,4 +1,4 @@
-# Belenus - letras das músicas ensaiadas
+# Belenus - SetList 23/11/2024 
 
 [Come Together](#come-together) |
 [Sunshine Of Your Love](#sunshine-of-your-love) |
@@ -34,12 +34,13 @@
 [Fátima](#fátima) |
 
 
+<!--
 # Querigma - letras das bandas de alunos
 
 [I Don't Wanna Lose You](#i-dont-wanna-lose-you) |
 [Heathens](#heathens) |
 [Rock You Like a Hurricane](#rock-you-like-a-hurricane) |
-
+ -->
 
 ### Come Together 
 #### The Beatles
