@@ -1,5 +1,25 @@
 # Belenus - SetList 23/11/2024 
 
+[Listen To The Music](#listen-to-the-music) | 
+[I Hate Myself For Loving You](#i-hate-myself-for-loving-you) | 
+[Agora Só Falta Você](#agora-só-falta-você) | 
+
+[32 Dentes](#32-dentes) | 
+[Psycho Killer](#psycho-killer) | 
+[Dream On](#dream-on) | 
+[Blues da Piedade](#blues-da-piedade) | 
+[Easy Lover](#easy-lover) | 
+[Zombie](#zombie) | 
+[Malandragem](#malandragem) | 
+[Fátima](#fátima) | 
+[Perfect Strangers](#perfect-strangers) | 
+[Breaking All The Rules](#breaking-all-the-rules) | 
+[Aluga-se](#aluga-se) | 
+[Alive](#alive) | 
+[Jumpin' Jack Flash](#jumpin-jack-flash) |
+
+# Belenus - letras das músicas ensaiadas
+
 [Come Together](#come-together) |
 [Sunshine Of Your Love](#sunshine-of-your-love) |
 [Listen To The Music](#listen-to-the-music) |
@@ -33,14 +53,6 @@
 [32 Dentes](#32-dentes) | 
 [Fátima](#fátima) |
 
-
-<!--
-# Querigma - letras das bandas de alunos
-
-[I Don't Wanna Lose You](#i-dont-wanna-lose-you) |
-[Heathens](#heathens) |
-[Rock You Like a Hurricane](#rock-you-like-a-hurricane) |
- -->
 
 ### Come Together 
 #### The Beatles
@@ -218,7 +230,7 @@ Oh, oh, listen to the music \
 Oh, oh, listen to the music \
 All the time
 
-[índice](#belenus---letras-das-músicas-ensaiadas)
+[índice](#belenus---setlist-23\11\2024)
  
 
 ### Behind Blue Eyes 
@@ -336,7 +348,7 @@ I hate myself (ow, uh)
 
 I hate myself for loving you
 
-[índice](#belenus---letras-das-músicas-ensaiadas)
+[índice](#b)
  
 
 ### Because The Night 
