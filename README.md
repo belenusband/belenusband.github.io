@@ -53,6 +53,12 @@
 [32 Dentes](#32-dentes) | 
 [Fátima](#fátima) |
 
+# Querigma - letras das bandas de alunos
+
+[I Don't Wanna Lose You](#i-dont-wanna-lose-you) |
+[Heathens](#heathens) |
+[Rock You Like a Hurricane](#rock-you-like-a-hurricane) |
+
 
 ### Come Together 
 #### The Beatles
