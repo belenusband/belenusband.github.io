@@ -230,7 +230,7 @@ Oh, oh, listen to the music \
 Oh, oh, listen to the music \
 All the time
 
-[índice](#belenus---setlist-23\11\2024)
+[índice](#belenus---setlist-23112024)
  
 
 ### Behind Blue Eyes 
