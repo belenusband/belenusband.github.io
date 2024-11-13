@@ -1,5 +1,13 @@
 # Belenus Band
 
+Nos encontre no [Instagram](https://www.instagram.com/belenusband/)
+
+[Mariana Reis](https://www.instagram.com/marianainreis/) - Baixo
+[Gustavo Gonçalves](https://www.instagram.com/gustav.goncalves/) - Guitarra e Vocal
+[Lilian Lilith](https://www.instagram.com/lili.lilith/) - Bateria
+[John Bechara](https://www.instagram.com/john__bechara/) - Guitarra
+[Eliane Kobayakawa](https://www.instagram.com/elicrisko/) - Vocal
+
 # Belenus - SetList 23/11/2024 
 
 [Listen To The Music](#listen-to-the-music) | 
