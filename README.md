@@ -247,7 +247,10 @@ Oh, oh, listen to the music \
 Oh, oh, listen to the music \
 All the time
 
-[índice](#belenus---setlist-23112024)
+
+[índice](#belenus---letras-das-músicas-ensaiadas)
+
+[setlist](#belenus---setlist-23112024)
  
 
 ### Behind Blue Eyes 
@@ -365,7 +368,9 @@ I hate myself (ow, uh)
 
 I hate myself for loving you
 
-[índice](#belenus---setlist-23112024)
+[índice](#belenus---letras-das-músicas-ensaiadas)
+
+[setlist](#belenus---setlist-23112024)
  
 
 ### Because The Night 
@@ -469,7 +474,9 @@ Jumpin' Jack Flash, it's a gas
 Jumpin' Jack Flash, it's a gas \
 Jumpin' Jack Flash, it's a gas
 
-[índice](#belenus---setlist-23112024)
+[índice](#belenus---letras-das-músicas-ensaiadas)
+
+[setlist](#belenus---setlist-23112024)
  
 
 ### Whiskey In The Jar 
@@ -616,7 +623,9 @@ Zombie, zombie, zombie-ie-ie-ie
 
 Oh-oh-oh-oh-oh-oh-oh, eh-eh oh, ya-ya
 
-[índice](#belenus---setlist-23112024)
+[índice](#belenus---letras-das-músicas-ensaiadas)
+
+[setlist](#belenus---setlist-23112024)
 
 
 ### What's Up?
@@ -849,7 +858,9 @@ She'll get a hold on you believe it \
 Before you know it you'll be on your knees \
 (you'll be down onyour knees)
 
-[índice](#belenus---setlist-23112024)
+[índice](#belenus---letras-das-músicas-ensaiadas)
+
+[setlist](#belenus---setlist-23112024)
  
 
 ### Perfect Strangers
@@ -886,7 +897,9 @@ And if you hear me talking on the wind \
 You've got to understand \
 We must remain perfect strangers
 
-[índice](#belenus---setlist-23112024)
+[índice](#belenus---letras-das-músicas-ensaiadas)
+
+[setlist](#belenus---setlist-23112024)
  
 
 ### Breaking All The Rules
@@ -926,7 +939,9 @@ Never choosing to be fools
 
 (solo)
 
-[índice](#belenus---setlist-23112024)
+[índice](#belenus---letras-das-músicas-ensaiadas)
+
+[setlist](#belenus---setlist-23112024)
  
 
 ### Alive
@@ -979,7 +994,9 @@ Yeah yeah yeah yeah yeah yeah yeah!
 Ooh yeah, ooh ooh \
 Ooh yeah, yeah yeah yeah
 
-[índice](#belenus---setlist-23112024)
+[índice](#belenus---letras-das-músicas-ensaiadas)
+
+[setlist](#belenus---setlist-23112024)
  
 
 ### Stand By Me
@@ -1205,7 +1222,9 @@ Fa, fa, fa, fa, fa, fa, fa, fa, fa, far better \
 Run, run, run, run, run, run, run away \
 Oh, oh, oh, oh, aye-ya-ya-ya-ya
 
-[índice](#belenus---setlist-23112024)
+[índice](#belenus---letras-das-músicas-ensaiadas)
+
+[setlist](#belenus---setlist-23112024)
 
 ### Wish You Were Here
 #### Pink Floyd
@@ -1308,7 +1327,9 @@ Nós não vamo paga nada! \
 Nós não vamo paga nada! \
 Nós não vamo paga nada!
 
-[índice](#belenus---setlist-23112024)
+[índice](#belenus---letras-das-músicas-ensaiadas)
+
+[setlist](#belenus---setlist-23112024)
 
 
 ### Agora Só Falta Você
@@ -1358,7 +1379,9 @@ Agora só falta você \
 Agora só falta você \
 Agora só falta você
 
-[índice](#belenus---setlist-23112024)
+[índice](#belenus---letras-das-músicas-ensaiadas)
+
+[setlist](#belenus---setlist-23112024)
 
 
 ### Malandragem
@@ -1414,7 +1437,9 @@ Eu sou poeta e não aprendi a amar \
 
 Quem sabe eu ainda sou uma garotinha!
 
-[índice](#belenus---setlist-23112024)
+[índice](#belenus---letras-das-músicas-ensaiadas)
+
+[setlist](#belenus---setlist-23112024)
 
 
 ### Blues da Piedade
@@ -1476,7 +1501,9 @@ Lhes dê um pouco de coragem
 Ah, ah, um pouco de coragem \
 Ah, ah, lhes dê grandeza e um pouco de coragem
 
-[índice](#belenus---setlist-23112024)
+[índice](#belenus---letras-das-músicas-ensaiadas)
+
+[setlist](#belenus---setlist-23112024)
 
 
 ### Dream On
@@ -1527,7 +1554,9 @@ Sing for the laughter and sing for the tear \
 Sing with me, if it's just for today \
 Maybe tomorrow the good Lord will take you away
 
-[índice](#belenus---setlist-23112024)
+[índice](#belenus---letras-das-músicas-ensaiadas)
+
+[setlist](#belenus---setlist-23112024)
 
 
 ### Heaven
@@ -1673,7 +1702,9 @@ Não confio em ninguém com mais de 30 \
 Não confio em ninguém com 32 dentes
 
 
-[índice](#belenus---setlist-23112024)
+[índice](#belenus---letras-das-músicas-ensaiadas)
+
+[setlist](#belenus---setlist-23112024)
 
 ### Fátima
 #### Capital Inicial
@@ -1705,7 +1736,52 @@ E a ferida não cicatrizou \
 E o limpo se sujou \
 E no terceiro dia ninguém ressuscitou
 
-[índice](#belenus---setlist-23112024)
+[índice](#belenus---letras-das-músicas-ensaiadas)
+
+[setlist](#belenus---setlist-23112024)
+
+
+### Changes
+#### Black Sabbath
+
+I feel unhappy \
+I feel so sad \
+I've lost the best friend \
+That I ever had \
+She was my woman \
+I love her so \
+But it's too late now \
+I've let her go
+
+I'm going through changes \
+I'm going through changes
+
+We shared the years \
+We shared each day \
+In love together \
+We found a way \
+But soon the world \
+Had its evil way \
+My heart was blinded \
+Love went astray 
+
+I'm going through changes \
+I'm going through changes
+
+It took so long \
+To realize \
+And I can still hear \
+Her last goodbyes \
+Now all my days \
+Are filled with tears \
+Wish I could go back \
+And change these years
+
+I'm going through changes \
+I'm going through changes
+
+[índice](#belenus---letras-das-músicas-ensaiadas)
+
 
 ### I Don't Wanna Lose You
 #### Tina Turner
