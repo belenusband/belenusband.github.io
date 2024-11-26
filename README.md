@@ -63,6 +63,7 @@ Nos encontre no [Instagram](https://www.instagram.com/belenusband/)
 [Amor](#amor) | 
 [32 Dentes](#32-dentes) | 
 [Fátima](#fátima) |
+[Changes](#changes) |
 
 # Querigma - letras das bandas de alunos
 
