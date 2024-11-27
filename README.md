@@ -64,6 +64,7 @@ Nos encontre no [Instagram](https://www.instagram.com/belenusband/)
 [32 Dentes](#32-dentes) | 
 [Fátima](#fátima) |
 [Changes](#changes) |
+[Should I Stay Or Should I Go](#should-i-stay-or-should-i-go) |
 
 # Querigma - letras das bandas de alunos
 
@@ -1780,6 +1781,71 @@ And change these years
 
 I'm going through changes \
 I'm going through changes
+
+[índice](#belenus---letras-das-músicas-ensaiadas)
+
+### Should I Stay Or Should I Go
+#### The Clash
+
+Darling, you've got to let me know \
+Should I stay or should I go? \
+If you say that you are mine \
+I'll be here till the end of time \
+So you got to let me know \
+Should I stay or should I go?
+
+It's always tease, tease, tease \
+You're happy when I'm on my knees \
+One day is fine, the next is black \
+So if you want me off your back \
+Well, come on and let me know \
+Should I stay or should I go?
+
+Should I stay or should I go now? \
+Should I stay or should I go now? \
+If I go there will be trouble \
+And if I stay it will be double \
+So come on and let me know
+
+This indecision's bugging me \
+(esta indecisión me molesta) \
+If you don't want me, set me free \
+(si no me quieres, líbrame) \
+Exactly who I'm supposed to be? \
+(dime, ¿qué tengo ser?) \
+Don't you know which clothes even fit me? \
+(¿Sabes qué ropa me queda?) \
+Come on and let me know \
+(me tienes que decir) \
+Should I cool it or should I blow? \
+(¿Me debo ir o quedarme?)
+
+Split! \
+¿Me enfrío o lo soplo?
+
+Should I stay or should I go now? \
+(¿Enfrío o lo soplo?) \
+Should I stay or should I go now? \
+(¿Enfrío o lo soplo?) \
+If I go there will be trouble \
+(si me voy va a haber peligro) \
+And if I stay it will be double \
+(si me quedo será el doble) \
+So you gotta let me know \
+(me tienes que decir) \
+Should I cool it or should I blow? \
+(¿Enfrío o lo soplo?) 
+
+Should I stay or should I go now? \
+(¿Enfrío o lo soplo?) \
+If I go there will be trouble \
+(si me voy va a haber peligro) \
+And if I stay it will be double \
+(si me quedo será el doble) \
+So you gotta let me know \
+(me tienes que decir) \
+Should I stay or should I go?
+
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
