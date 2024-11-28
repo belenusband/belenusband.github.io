@@ -63,8 +63,14 @@ Nos encontre no [Instagram](https://www.instagram.com/belenusband/)
 [Amor](#amor) | 
 [32 Dentes](#32-dentes) | 
 [Fátima](#fátima) |
+
 [Changes](#changes) |
 [Should I Stay Or Should I Go](#should-i-stay-or-should-i-go) |
+[Give Love A Bad Name](#you-give-love-a-bad-name) |
+[Have You Even Seen The Rain](#have-you-ever-seen-the-rain) |
+[Middle Of The Road](#middle-of-the-road) |
+[Love Ain't No Stranger](#love-aint-no-stranger) |
+
 
 # Querigma - letras das bandas de alunos
 
@@ -1846,6 +1852,216 @@ So you gotta let me know \
 (me tienes que decir) \
 Should I stay or should I go?
 
+
+[índice](#belenus---letras-das-músicas-ensaiadas)
+
+### You Give Love a Bad Name
+#### Bon Jovi
+
+Shot through the heart \
+And you're to blame \
+Darling, you give love a bad name
+
+An angel's smile is what you sell \
+You promise me heaven, then put me through hell \
+Chains of love got a hold on me \
+When passion's a prison, you can't break free
+
+Oh, oh, oh \
+You're a loaded gun \
+Oh, oh, oh \
+There's nowhere to run \
+No one can save me \
+The damage is done
+
+Shot through the heart \
+And you're to blame \
+You give love a bad name (bad name)
+
+I play my part \
+And you play your game \
+You give love a bad name (bad name) \
+You give love a bad name
+
+Paint your smile on your lips \
+Blood red nails on your fingertips \
+A school boy's dream, you act so shy \
+Your very first kiss was your first kiss goodbye
+
+Oh, oh, oh \
+You're a loaded gun \
+Oh, oh, oh \
+There's nowhere to run \
+No one can save me \
+The damage is done
+
+Shot through the heart \
+And you're to blame \
+You give love a bad name (bad name)
+
+I play my part \
+And you play your game \
+You give love a bad name (bad name) \
+You give love, ah!
+
+Shot through the heart \
+And you're to blame \
+You give love a bad name
+
+I play my part \
+And you play your game \
+You give love a bad name (bad name)
+
+Shot through the heart \
+And you're to blame \
+You give love a bad name (bad name) \
+I play my part \
+And you play your game
+
+You give love a bad name (bad name) \
+You give love \
+You give love (bad name) \
+You give love
+
+You give love (bad name) \
+You give love \
+You give love (bad name) \
+You give love
+
+[índice](#belenus---letras-das-músicas-ensaiadas)
+
+
+### Have You Ever Seen The Rain?
+#### Creedence Clearwater Revival
+
+Someone told me long ago \
+There's a calm before the storm \
+I know, it's been comin' for some time \
+When it's over, so they say \
+It'll rain a sunny day \
+I know, shinin' down like water
+
+I wanna know, have you ever seen the rain? \
+I wanna know, have you ever seen the rain \
+Comin' down on a sunny day?
+
+Yesterday and days before \
+Sun is cold and rain is hard \
+I know, been that way for all my time \
+'Til forever on it goes \
+Through the circle, fast and slow \
+I know, it can't stop, I wonder
+
+I wanna know, have you ever seen the rain? \
+I wanna know, have you ever seen the rain \
+Comin' down on a sunny day?
+
+Yeah \
+I wanna know, have you ever seen the rain? \
+I wanna know, have you ever seen the rain \
+Comin' down on a sunny day?
+
+[índice](#belenus---letras-das-músicas-ensaiadas)
+
+
+### Middle of the Road
+#### The Pretenders
+
+The middle of the road is trying to find me \
+I'm standing in the middle of life with my plans behind me \
+Well I got a smile for everyone I meet \
+As long as you don't try dragging my bay \
+Or dropping the bomb on my street
+
+Now come on baby \
+Get in the road \
+Oh come on now \
+In the middle of the road, yeah
+
+In the middle of the road you see the darndest things \
+Like fat guys driving 'round in jeeps through the city \
+Wearing big diamond rings and silk suits \
+Past Corrugated tin shacks full up with kids \
+Oh man I don't mean a hampstead nursery \
+When you own a big chunk of the bloody third world \
+The babies just come with the scenery
+
+Oh come on baby \
+Get in the road \
+Oh come on now \
+In the middle of the road, yeah
+
+One, two, three, four
+
+The middle of the road is no private cul-de-sac \
+I can't get from the cab to the curb \
+Without some little jerk on my back \
+Don't harass me, can't you tell \
+I'm going home, I'm tired as hell \
+I'm not the cate I used to be \
+I got a kid, I'm thirty-three
+
+Baby, get in the road \
+Come on now \
+In the middle of the road \
+Yeah
+
+[índice](#belenus---letras-das-músicas-ensaiadas)
+
+
+### Love Ain't No Stranger
+#### Whitesnake
+
+Who knows where the cold wind blows \
+I ask my friends, but, nobody knows \
+Who am I to believe in love \
+Oh, love ain't no stranger
+
+I looked around an' what did I see \
+Broken hearted people staring at me \
+All searching 'cos they still believe \
+Oh, love ain't no stranger
+
+I was alone an' I needed love \
+So much I sacrificed all I was dreaming of \
+I heard no warning, but, a heart can tell \
+I'd feel the emptiness of love I know so well
+
+Love ain't no stranger \
+I ain't no stranger \
+Love ain't no stranger \
+I ain't no stranger to love, no, no, no
+
+Can't hold the passion of a soul in need \
+I look for mercy when my heart begins to bleed \
+I know good loving an' I'm a friend of pain \
+But, when I read between the lines it's all the same
+
+Love ain't no stranger \
+I ain't no stranger \
+Love ain't no stranger \
+I ain't no stranger to love
+
+So who knows where the cold wind blows \
+I ask my friends, but, nobody knows \
+Who am I to believe in love \
+Lord, have mercy \
+Love ain't no stranger \
+I ain't no stranger
+
+I was alone an' I needed love \
+So much I sacrificed all I was dreaming of \
+Can't hold the passion of a soul in need \
+I look for mercy when my heart begins to bleed
+
+Love ain't no stranger \
+I ain't no stranger \
+Love ain't no stranger \
+I ain't no stranger to love
+
+Love ain't no stranger
+
+I ain't no stranger
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
