@@ -64,12 +64,13 @@ Nos encontre no [Instagram](https://www.instagram.com/belenusband/)
 [32 Dentes](#32-dentes) | 
 [Fátima](#fátima) |
 
-[Changes](#changes) |
 [Should I Stay Or Should I Go](#should-i-stay-or-should-i-go) |
-[Give Love A Bad Name](#you-give-love-a-bad-name) |
 [Have You Even Seen The Rain](#have-you-ever-seen-the-rain) |
+[Changes](#changes) |
+[Give Love A Bad Name](#you-give-love-a-bad-name) |
 [Middle Of The Road](#middle-of-the-road) |
 [Love Ain't No Stranger](#love-aint-no-stranger) |
+[Live And Let Die](#live-and-let-die) |
 
 
 # Querigma - letras das bandas de alunos
@@ -2062,6 +2063,35 @@ I ain't no stranger to love
 Love ain't no stranger
 
 I ain't no stranger
+
+[índice](#belenus---letras-das-músicas-ensaiadas)
+
+
+### Live And Let Die
+#### Guns N' Roses
+
+When you were young and your heart \
+Was an open book
+
+You used to say: Live and let live \
+(You know you did, you know you did, you know you did) \
+But if this ever-changing world in which we live in \
+Makes you give in and cry
+
+Say: Live and let die \
+Live and let die
+
+What does it matter to ya? \
+When you got a job to do, you got to do it well \
+You got to give the other fella hell
+
+You used to say: Live and let live \
+(You know you did, you know you did, you know you did) \
+But if this ever-changing world in which we live in \
+Makes you give in and cry
+
+Say: Live and let die \
+Live and let die
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
