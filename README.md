@@ -1957,6 +1957,14 @@ I wanna know, have you ever seen the rain? \
 I wanna know, have you ever seen the rain \
 Comin' down on a sunny day?
 
+I wanna know, have you ever seen the rain? \
+I wanna know, have you ever seen the rain \
+Comin' down on a sunny day?
+
+I wanna know, have you ever seen the rain? \
+I wanna know, have you ever seen the rain \
+Comin' down on a sunny day?
+
 Yeah \
 I wanna know, have you ever seen the rain? \
 I wanna know, have you ever seen the rain \
