@@ -78,7 +78,7 @@ Nos encontre no [Instagram](https://www.instagram.com/belenusband/)
 [I Don't Wanna Lose You](#i-dont-wanna-lose-you) |
 [Heathens](#heathens) |
 [Rock You Like a Hurricane](#rock-you-like-a-hurricane) |
-[Sweet Child O'Mine](#sweet-child-omine) |
+[Sweet Child O'Mine](#sweet-child-o-mine) |
 
 
 ### Come Together 
