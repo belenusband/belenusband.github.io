@@ -78,6 +78,7 @@ Nos encontre no [Instagram](https://www.instagram.com/belenusband/)
 [I Don't Wanna Lose You](#i-dont-wanna-lose-you) |
 [Heathens](#heathens) |
 [Rock You Like a Hurricane](#rock-you-like-a-hurricane) |
+[Sweet Child O'Mine](#sweet-child-omine) |
 
 
 ### Come Together 
@@ -2296,6 +2297,76 @@ Rock you like a hurricane \
 Here I am \
 Rock you like a hurricane \
 Here I am
+
+
+[índice](#querigma---letras-das-bandas-de-alunos)
+
+
+### Sweet Child O' Mine
+#### Guns N' Roses
+
+She's got a smile that it seems to me \
+Reminds me of childhood memories \
+Where everything was as fresh \
+As the bright blue sky
+
+Now and then when I see her face \
+She takes me away to that special place \
+And if I stare too long \
+I'd probably break down and cry
+
+Oh, oh, oh, sweet child of mine \
+Oh, oh, oh, oh, sweet love of mine
+
+She's got eyes of the bluest skies \
+As if they thought of rain \
+I hate to look into those eyes \
+And see an ounce of pain
+
+Her hair reminds me of a warm safe place \
+Where, as a child, I'd hide \
+And pray for the thunder and the rain \
+To quietly pass me by
+
+Oh, oh, oh, sweet child of mine \
+Oh, oh, oh, oh, sweet love of mine 
+
+(solo) (15 compassos)
+
+Oh, oh, oh, yeah, \
+Oh, oh, oh, sweet child of mine \
+Oh, oh, oh, oh, sweet love of mine \
+Oh, oh, oh, oh, sweet child of mine \
+Ooh, yeah, yeah \
+Ooh! Sweet love of mine
+
+(solo) (33 compassos)
+
+Where do we go? \
+Where do we go now? \
+Where do we go?
+
+oohhh, \
+Where do we go? \
+Where do we go now? 
+
+Where do we go? (sweet child o'mine) \
+Where do we go now? \
+ai, ai, ai, ai, ai, ai, ai \
+Where do we go, now? \
+Ohhhh, Where do we go?
+
+Ohh, Where do we go now? \
+Where do we go? \
+Where do we go now? 
+
+Where do we go? \
+Where do we go now? \
+Now, now, now \
+Now, now, now, now?
+
+Sweet child \
+Sweet child of mine
 
 
 [índice](#querigma---letras-das-bandas-de-alunos)
