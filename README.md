@@ -71,6 +71,7 @@ Nos encontre no [Instagram](https://www.instagram.com/belenusband/)
 [Middle Of The Road](#middle-of-the-road) |
 [Love Ain't No Stranger](#love-aint-no-stranger) |
 [Live And Let Die](#live-and-let-die) |
+[Pro Dia Nascer Feliz](#pro-dia-nascer-feliz) |
 [Proud Mary](#proud-mary) |
 
 
@@ -2102,6 +2103,74 @@ Makes you give in and cry
 
 Say: Live and let die \
 Live and let die
+
+[índice](#belenus---letras-das-músicas-ensaiadas)
+
+
+### Pro Dia Nascer Feliz
+#### Barão Vermelho
+
+Todo dia a insônia me convence que o céu \
+Faz tudo ficar infinito \
+E que a solidão é pretensão de quem fica \
+Escondido fazendo fita
+
+Todo dia tem a hora da sessão Coruja \
+Hum, só entende quem namora \
+Agora, vambora
+
+Estamos, meu bem, por um triz \
+Pro dia nascer feliz \
+Hum, pro dia nascer feliz \
+O mundo acordar \
+E a gente dormir, dormir \
+Pra o dia nascer feliz, ah \
+Essa é a vida que eu quis \
+O mundo inteiro acordar \
+E a gente dormir
+
+Todo dia é dia e tudo em nome do amor \
+Ah, essa é a vida que eu quis \
+Procurando vaga, uma hora aqui, a outra ali \
+No vai-e-vem dos teus quadris
+
+Nadando contra a corrente \
+Só pra exercitar \
+Todo o músculo que sente
+
+Me dê de presente o teu bis \
+Pro dia nascer feliz \
+É, pro dia nascer feliz \
+O mundo inteiro acordar \
+E a gente dormir, dormir \
+Pro dia nascer feliz, é \
+Pro dia nascer feliz \
+O mundo inteiro acordar \
+E a gente dormir
+
+Oh-oh-oh-oh \
+Oh-oh-oh-oh \
+Oh-oh-oh-oh
+
+Todo dia é dia e tudo em nome do amor \
+Essa é a vida que eu quis \
+Procurando vaga, uma hora aqui, a outra ali \
+No vai-e-vem dos teus quadris
+
+Nadando contra a corrente \
+Só pra exercitar \
+Todo o músculo que sente
+
+Me dê de presente o teu bis \
+Pro dia nascer feliz \
+Pro dia nascer feliz \
+Hum, o mundo inteiro acordar \
+E a gente dormir, dormir \
+Pro dia nascer feliz \
+Ah, essa é a vida que eu quis \
+O mundo inteiro acordar \
+E a gente dormir
+
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
