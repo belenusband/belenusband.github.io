@@ -71,6 +71,7 @@ Nos encontre no [Instagram](https://www.instagram.com/belenusband/)
 [Middle Of The Road](#middle-of-the-road) |
 [Love Ain't No Stranger](#love-aint-no-stranger) |
 [Live And Let Die](#live-and-let-die) |
+[Proud Mary](#proud-mary) |
 
 
 # Querigma - letras das bandas de alunos
@@ -2101,6 +2102,97 @@ Makes you give in and cry
 
 Say: Live and let die \
 Live and let die
+
+[índice](#belenus---letras-das-músicas-ensaiadas)
+
+
+### Proud Mary
+#### Tina Turner
+
+
+And we rollin' (ooh) \
+Rollin' (ooh) \
+Rollin' on the river (listen to the story)
+
+Left a good job in the city \
+Workin' for the man every night and day \
+And I never lost one minute of sleepin' \
+I weren't worryin' 'bout the way that things might have been
+
+Big wheel, keep on turnin' \
+Proud Mary, keep on burnin' \
+And we're rollin' (rolling) (ooh) \
+Rollin', yeah (rollin') (ooh) \
+Rollin' on the river (rollin' on the river)
+
+Cleaned a lot of plates in Memphis \
+Pumped a lot of 'tane down in New Orleans \
+But I never saw the good side of the city \
+Until I hitched a ride on the Riverboat Queen
+
+Big wheel, keep on turnin' \
+Proud Mary, keep on burnin' \
+And we're rollin' (rollin') (ooh) \
+Rollin', yeah (rollin') (ooh) \
+Rollin' on the river (rollin' on the river) \
+Said we're rollin' (rolling) (ooh) \
+Rollin', yeah (rolling) (ooh) \
+Rollin' on the river (rollin' on the river)
+
+Oh, I left a good job in the city \
+Workin' for the man every night and day \
+And I never lost one minute of sleepin' \
+Worryin' 'bout the way things might have been
+
+Big wheel, keep on turnin' (turnin') \
+Proud Mary, keep on burnin' (burnin') \
+Rollin', rollin' \
+Rollin' on the river \
+Said we rollin', rollin' \
+Rollin' on the river
+
+Alright
+
+Oh, I cleaned a lot of plates in Memphis, y'all \
+I pumped a lot of 'tane down in New Orleans \
+But I never saw the good side of the city \
+Till I hitched a ride on the Riverboat Queen
+
+Big wheel, keep on turnin' (turnin') \
+Proud Mary, keep on burnin' (burnin') \
+Rollin', rollin' \
+Rollin' on the river \
+I tell you that we rollin', rollin' \
+Rollin' on the river
+
+Alright, yeah \
+Ooh, yeah-yeah-yeah-yeah-yeah-yeah
+
+If you come down to the river \
+I bet you gonna find some people who live \
+You don't have to worry if you got no money \
+People on the river are happy to give
+
+Big wheel keep on turnin' (turnin') \
+Proud Mary keep on burnin' (burnin') \
+Rollin', rollin' \
+Rollin' on the river \
+Rollin', rollin' \
+Rollin' on the river
+
+Yeah, alright, uh-huh, wow
+
+Rollin', rollin' \
+Rollin' on the river \
+Rollin', rollin' \
+Rollin' on the river \
+Rollin', rollin' \
+Rollin' on the river \
+Rollin', rollin' \
+Rollin' on the river
+
+Yeah, alright, uh-huh
+
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
