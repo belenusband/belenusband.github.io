@@ -1652,9 +1652,21 @@ Sombra, silêncio ou espuma \
 Nuvem azul \
 Que arrefece
 
+[Gustavo]
 Simples e suave coisa \
 Suave coisa nenhuma \
-Que em mim amadurece
+[Ambos] Que em mim amadurece
+
+Leve, como leve pluma \
+Muito leve, leve pousa \
+Muito leve, leve pousa
+
+Tchi-ru-ru-ru-ru tchi-tchi-tchi-ru-ru-ru \
+Tchi-ru-ru-ru-ru tchi-tchi-tchi-ru-ru-ru \
+Tchi-ru-ru-ru-ru tchi-tchi-tchi-ru-ru-ru \
+Tchi-ru-ru-ru-ru tchi-tchi-tchi-ru-ru-ru \
+Tchi-ru-ru-ru-ru tchi-tchi-tchi-ru-ru-ru \
+Tchi-ru-ru-ru-ru tchi-tchi-tchi-ru-ru-ru Tchiup 
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
@@ -2178,11 +2190,21 @@ E a gente dormir
 ### Proud Mary
 #### Tina Turner
 
+[Gustavo] \
+Left a good job down in the city \
+Workin' for the man every night and day \
+And I never lost one minute of sleepin' \
+I weren't worryin' 'bout the way that things might have been \
+Big wheel, keep on turnin' \
+Proud Mary, keep on burnin' 
 
-And we rollin' (ooh) \
-Rollin' (ooh) \
-Rollin' on the river (listen to the story)
+[Eliane e Gustavo] \
+And we're rollin' (rolling) (ooh) \
+Rollin', yeah (rollin') (ooh) \
+Rollin' on the river (rollin' on the river)
 
+[Eliane] \
+(Listen to the history) \
 Left a good job in the city \
 Workin' for the man every night and day \
 And I never lost one minute of sleepin' \
@@ -2190,10 +2212,12 @@ I weren't worryin' 'bout the way that things might have been
 
 Big wheel, keep on turnin' \
 Proud Mary, keep on burnin' \
+
 And we're rollin' (rolling) (ooh) \
 Rollin', yeah (rollin') (ooh) \
 Rollin' on the river (rollin' on the river)
 
+[Eliane e Gustavo] \
 Cleaned a lot of plates in Memphis \
 Pumped a lot of 'tane down in New Orleans \
 But I never saw the good side of the city \
@@ -2208,6 +2232,7 @@ Said we're rollin' (rolling) (ooh) \
 Rollin', yeah (rolling) (ooh) \
 Rollin' on the river (rollin' on the river)
 
+[Parte agitada] \
 Oh, I left a good job in the city \
 Workin' for the man every night and day \
 And I never lost one minute of sleepin' \
@@ -2234,6 +2259,8 @@ Rollin' on the river \
 I tell you that we rollin', rollin' \
 Rollin' on the river
 
+Dup-dup-dup-dup \
+Dup-dup-dup-dup \
 Alright, yeah \
 Ooh, yeah-yeah-yeah-yeah-yeah-yeah
 
@@ -2249,6 +2276,9 @@ Rollin' on the river \
 Rollin', rollin' \
 Rollin' on the river
 
+Dup-dup-dup-dup \
+Dup-dup-dup-dup \
+Dup-dup-dup-dup \
 Yeah, alright, uh-huh, wow
 
 Rollin', rollin' \
