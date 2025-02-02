@@ -9,25 +9,42 @@ Nos encontre no [Instagram](https://www.instagram.com/belenusband/)
 [Eliane Kobayakawa](https://www.instagram.com/elicrisko/) - Vocal 
 
 
-# Belenus - SetList 23/11/2024 
+# Belenus - Ensaio 02/02/2025 
 
-[Listen To The Music](#listen-to-the-music) | 
-[I Hate Myself For Loving You](#i-hate-myself-for-loving-you) | 
-[Agora Só Falta Você](#agora-só-falta-você) | 
-
-[32 Dentes](#32-dentes) | 
-[Psycho Killer](#psycho-killer) | 
+[Give Love A Bad Name](#you-give-love-a-bad-name) |
+[Heaven](#heaven) | 
 [Dream On](#dream-on) | 
-[Blues da Piedade](#blues-da-piedade) | 
-[Easy Lover](#easy-lover) | 
-[Zombie](#zombie) | 
-[Malandragem](#malandragem) | 
-[Fátima](#fátima) | 
-[Perfect Strangers](#perfect-strangers) | 
-[Breaking All The Rules](#breaking-all-the-rules) | 
+[Wish You Were Here](#wish-you-were-here) | 
+Heroes | 
+[All Right Now](#all-right-now) | 
+[32 Dentes](#32-dentes) | 
+[Have You Even Seen The Rain](#have-you-ever-seen-the-rain) | 
 [Aluga-se](#aluga-se) | 
+[Blues da Piedade](#blues-da-piedade) | 
+[Behind Blue Eyes](#behind-blue-eyes) | 
+[Because The Night](#because-the-night) | 
+[Agora Só Falta Você](#agora-só-falta-você) | 
+[What's Up?](#whats-up) | 
+[Perfect Strangers](#perfect-strangers) | 
+[Easy Lover](#easy-lover) | 
+[Breaking All The Rules](#breaking-all-the-rules) | 
+[Suspicious Minds] |
+
+# Belenus - Ensaio 09/02/2025 
+
+[Come Together](#come-together) |
+[Listen To The Music](#listen-to-the-music) |
+[Sunshine Of Your Love](#sunshine-of-your-love) |
+[I Hate Myself For Loving You](#i-hate-myself-for-loving-you) |
+[Malandragem](#malandragem) | 
+[Stand By Me](#stand-by-me) | 
+[Psycho Killer](#psycho-killer) | 
+[Zombie](#zombie) | 
 [Alive](#alive) | 
-[Jumpin' Jack Flash](#jumpin-jack-flash) |
+[Jumpin' Jack Flash](#jumpin-jack-flash) | 
+[Whiskey In The Jar](#whiskey-in-the-jar) |
+[Man in the Box](#man-in-the-box) |
+
 
 # Belenus - letras das músicas ensaiadas
 
@@ -157,6 +174,8 @@ Come together, yeah \
 Come together, *yeah
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
+
+[ensaio](#belenus---ensaio-09022025)
  
 
 ### Sunshine Of Your Love 
@@ -204,6 +223,8 @@ In the sunshine of your love
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
  
+[ensaio](#belenus---ensaio-09022025)
+
 
 ### Listen To The Music 
 #### Doobie Brothers
@@ -261,9 +282,9 @@ All the time
 
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
-
-[setlist](#belenus---setlist-23112024)
  
+[ensaio](#belenus---ensaio-09022025)
+
 
 ### Behind Blue Eyes 
 #### The Who
@@ -319,6 +340,8 @@ Behind blue eyes
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
  
+[setlist](#belenus---ensaio-02022025)
+
 
 ### I Hate Myself For Loving You 
 #### Joan Jett & the Blackhearts
@@ -382,7 +405,7 @@ I hate myself for loving you
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
-[setlist](#belenus---setlist-23112024)
+[ensaio](#belenus---ensaio-09022025)
  
 
 ### Because The Night 
@@ -451,6 +474,8 @@ Because the night belongs to lovers
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
  
+[setlist](#belenus---ensaio-02022025)
+
 
 ### Jumpin' Jack Flash 
 #### The Rolling Stones
@@ -487,9 +512,9 @@ Jumpin' Jack Flash, it's a gas \
 Jumpin' Jack Flash, it's a gas
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
-
-[setlist](#belenus---setlist-23112024)
  
+[ensaio](#belenus---ensaio-09022025)
+
 
 ### Whiskey In The Jar 
 #### Metallica
@@ -536,6 +561,8 @@ Musha ring, dum-a-doo dum-a-da \
 Musha ring, dum-a-doo dum-a-da
  
 [índice](#belenus---letras-das-músicas-ensaiadas)
+
+[ensaio](#belenus---ensaio-09022025)
 
 
 ### Man in the Box
@@ -591,6 +618,8 @@ Dahhh ahh rahh ahh rahhh rahhh rahhh raaww
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
  
+[ensaio](#belenus---ensaio-09022025)
+
 
 ### Zombie
 #### The Cranberries
@@ -637,7 +666,7 @@ Oh-oh-oh-oh-oh-oh-oh, eh-eh oh, ya-ya
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
-[setlist](#belenus---setlist-23112024)
+[ensaio](#belenus---ensaio-09022025)
 
 
 ### What's Up?
@@ -724,6 +753,7 @@ For a destination
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
  
+[setlist](#belenus---ensaio-02022025)
 
 ### All Right Now
 #### Free
@@ -782,6 +812,8 @@ All right now, baby, it's all right now
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
  
+[setlist](#belenus---ensaio-02022025)
+
 
 ### Easy Lover 
 #### Phil Collins (feat. Philip Bayle) 
@@ -872,7 +904,7 @@ Before you know it you'll be on your knees \
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
-[setlist](#belenus---setlist-23112024)
+[setlist](#belenus---ensaio-02022025)
  
 
 ### Perfect Strangers
@@ -911,7 +943,7 @@ We must remain perfect strangers
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
-[setlist](#belenus---setlist-23112024)
+[setlist](#belenus---ensaio-02022025)
  
 
 ### Breaking All The Rules
@@ -953,7 +985,7 @@ Never choosing to be fools
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
-[setlist](#belenus---setlist-23112024)
+[setlist](#belenus---ensaio-02022025)
  
 
 ### Alive
@@ -1007,9 +1039,9 @@ Ooh yeah, ooh ooh \
 Ooh yeah, yeah yeah yeah
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
-
-[setlist](#belenus---setlist-23112024)
  
+[ensaio](#belenus---ensaio-09022025)
+
 
 ### Stand By Me
 #### Ben E. King
@@ -1053,6 +1085,8 @@ Oh, stand \
 Stand by me
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
+
+[ensaio](#belenus---ensaio-09022025)
 
 
 ### Synchronicity II
@@ -1236,7 +1270,8 @@ Oh, oh, oh, oh, aye-ya-ya-ya-ya
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
-[setlist](#belenus---setlist-23112024)
+[ensaio](#belenus---ensaio-09022025)
+
 
 ### Wish You Were Here
 #### Pink Floyd
@@ -1270,6 +1305,8 @@ Wish you were here
 (fazer vocalize no lugar do teclado)
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
+
+[setlist](#belenus---ensaio-02022025)
 
 
 ### Aluga-se
@@ -1341,7 +1378,7 @@ Nós não vamo paga nada!
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
-[setlist](#belenus---setlist-23112024)
+[setlist](#belenus---ensaio-02022025)
 
 
 ### Agora Só Falta Você
@@ -1393,7 +1430,7 @@ Agora só falta você
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
-[setlist](#belenus---setlist-23112024)
+[setlist](#belenus---ensaio-02022025)
 
 
 ### Malandragem
@@ -1451,7 +1488,7 @@ Quem sabe eu ainda sou uma garotinha!
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
-[setlist](#belenus---setlist-23112024)
+[ensaio](#belenus---ensaio-09022025)
 
 
 ### Blues da Piedade
@@ -1515,7 +1552,7 @@ Ah, ah, lhes dê grandeza e um pouco de coragem
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
-[setlist](#belenus---setlist-23112024)
+[setlist](#belenus---ensaio-02022025)
 
 
 ### Dream On
@@ -1568,7 +1605,7 @@ Maybe tomorrow the good Lord will take you away
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
-[setlist](#belenus---setlist-23112024)
+[setlist](#belenus---ensaio-02022025)
 
 
 ### Heaven
@@ -1635,6 +1672,8 @@ You're all that I want \
 You're all that I need
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
+
+[setlist](#belenus---ensaio-02022025)
 
 
 ### Amor
@@ -1728,7 +1767,8 @@ Não confio em ninguém com 32 dentes
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
-[setlist](#belenus---setlist-23112024)
+[setlist](#belenus---ensaio-02022025)
+
 
 ### Fátima
 #### Capital Inicial
@@ -1762,7 +1802,6 @@ E no terceiro dia ninguém ressuscitou
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
-[setlist](#belenus---setlist-23112024)
 
 
 ### Changes
@@ -1805,6 +1844,7 @@ I'm going through changes \
 I'm going through changes
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
+
 
 ### Should I Stay Or Should I Go
 #### The Clash
@@ -1870,6 +1910,7 @@ Should I stay or should I go?
 
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
+
 
 ### You Give Love a Bad Name
 #### Bon Jovi
@@ -1946,6 +1987,8 @@ You give love
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
+[setlist](#belenus---ensaio-02022025)
+
 
 ### Have You Ever Seen The Rain?
 #### Creedence Clearwater Revival
@@ -1986,6 +2029,8 @@ I wanna know, have you ever seen the rain \
 Comin' down on a sunny day?
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
+
+[setlist](#belenus---ensaio-02022025)
 
 
 ### Middle of the Road
