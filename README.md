@@ -8,6 +8,22 @@ Nos encontre no [Instagram](https://www.instagram.com/belenusband/)
 [John Bechara](https://www.instagram.com/john__bechara/) - Guitarra \
 [Eliane Kobayakawa](https://www.instagram.com/elicrisko/) - Vocal 
 
+# Belenus - ensaio 23/03/2025
+
+[Should I Stay Or Should I Go](#should-i-stay-or-should-i-go) |
+[Proud Mary](#proud-mary) |
+[Give Love A Bad Name](#you-give-love-a-bad-name) |
+[Dream On](#dream-on) | 
+[Wish You Were Here](#wish-you-were-here) | 
+[Heaven](#heaven) | 
+[Alive](#alive) | 
+[Suspicious Minds] |
+[Because The Night](#because-the-night) | 
+[Aluga-se](#aluga-se) | 
+[Agora Só Falta Você](#agora-só-falta-você) | 
+[Malandragem](#malandragem) | 
+[32 Dentes](#32-dentes) | 
+[Blues da Piedade](#blues-da-piedade) | 
 
 # Belenus - 1o. set - 15/02/2025 
 
@@ -476,6 +492,7 @@ Because the night belongs to lovers
  
 [setlist](#belenus---1o-set---15022025)
 
+[ensaio](#belenus---ensaio-23032025)
 
 ### Jumpin' Jack Flash 
 #### The Rolling Stones
@@ -1042,6 +1059,7 @@ Ooh yeah, yeah yeah yeah
  
 [setlist](#belenus---2o-set---15022025)
 
+[ensaio](#belenus---ensaio-23032025)
 
 ### Stand By Me
 #### Ben E. King
@@ -1308,6 +1326,7 @@ Wish you were here
 
 [setlist](#belenus---2o-set---15022025)
 
+[ensaio](#belenus---ensaio-23032025)
 
 ### Aluga-se
 #### Raul Seixas
@@ -1380,6 +1399,8 @@ Nós não vamo paga nada!
 
 [setlist](#belenus---2o-set---15022025)
 
+[ensaio](#belenus---ensaio-23032025)
+
 
 ### Agora Só Falta Você
 #### Rita Lee
@@ -1432,6 +1453,7 @@ Agora só falta você
 
 [setlist](#belenus---1o-set---15022025)
 
+[ensaio](#belenus---ensaio-23032025)
 
 ### Malandragem
 #### Cássia Eller
@@ -1490,6 +1512,7 @@ Quem sabe eu ainda sou uma garotinha!
 
 [setlist](#belenus---2o-set---15022025)
 
+[ensaio](#belenus---ensaio-23032025)
 
 ### Blues da Piedade
 #### Cazuza
@@ -1554,6 +1577,7 @@ Ah, ah, lhes dê grandeza e um pouco de coragem
 
 [setlist](#belenus---2o-set---15022025)
 
+[ensaio](#belenus---ensaio-23032025)
 
 ### Dream On
 #### Aerosmith
@@ -1607,6 +1631,7 @@ Maybe tomorrow the good Lord will take you away
 
 [setlist](#belenus---2o-set---15022025)
 
+[ensaio](#belenus---ensaio-23032025)
 
 ### Heaven
 #### Bryan Adams
@@ -1675,6 +1700,7 @@ You're all that I need
 
 [setlist](#belenus---2o-set---15022025)
 
+[ensaio](#belenus---ensaio-23032025)
 
 ### Amor
 #### Secos & Molhados
@@ -1769,6 +1795,7 @@ Não confio em ninguém com 32 dentes
 
 [setlist](#belenus---1o-set---15022025)
 
+[ensaio](#belenus---ensaio-23032025)
 
 ### Fátima
 #### Capital Inicial
@@ -1911,6 +1938,8 @@ Should I stay or should I go?
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
+[ensaio](#belenus---ensaio-23032025)
+
 
 ### You Give Love a Bad Name
 #### Bon Jovi
@@ -1989,6 +2018,7 @@ You give love
 
 [setlist](#belenus---2o-set---15022025)
 
+[ensaio](#belenus---ensaio-23032025)
 
 ### Have You Ever Seen The Rain?
 #### Creedence Clearwater Revival
@@ -2340,6 +2370,7 @@ Yeah, alright, uh-huh
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
+[ensaio](#belenus---ensaio-23032025)
 
 ### I Don't Wanna Lose You
 #### Tina Turner
