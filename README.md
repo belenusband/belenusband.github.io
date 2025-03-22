@@ -25,43 +25,6 @@ Nos encontre no [Instagram](https://www.instagram.com/belenusband/)
 [32 Dentes](#32-dentes) | 
 [Blues da Piedade](#blues-da-piedade) | 
 
-# Belenus - 1o. set - 15/02/2025 
-
-[Come Together](#come-together) |
-[Sunshine Of Your Love](#sunshine-of-your-love) |
-[Listen To The Music](#listen-to-the-music) |
-[Agora Só Falta Você](#agora-só-falta-você) | 
-[Suspicious Minds] |
-[I Hate Myself For Loving You](#i-hate-myself-for-loving-you) |
-[Psycho Killer](#psycho-killer) | 
-[32 Dentes](#32-dentes) | 
-[Because The Night](#because-the-night) | 
-Heroes | 
-[Zombie](#zombie) | 
-[What's Up?](#whats-up) | 
-[Jumpin' Jack Flash](#jumpin-jack-flash) | 
-[Whiskey In The Jar](#whiskey-in-the-jar) |
-[Man in the Box](#man-in-the-box) |
-
-# Belenus - 2o. set - 15/02/2025 
-
-[Heaven](#heaven) | 
-[All Right Now](#all-right-now) | 
-[Malandragem](#malandragem) | 
-[Dream On](#dream-on) | 
-[Blues da Piedade](#blues-da-piedade) | 
-[Give Love A Bad Name](#you-give-love-a-bad-name) |
-[Behind Blue Eyes](#behind-blue-eyes) | 
-[Alive](#alive) | 
-[Wish You Were Here](#wish-you-were-here) | 
-[Stand By Me](#stand-by-me) | 
-[Easy Lover](#easy-lover) | 
-[Have You Even Seen The Rain](#have-you-ever-seen-the-rain) | 
-[Aluga-se](#aluga-se) | 
-[Perfect Strangers](#perfect-strangers) | 
-[Breaking All The Rules](#breaking-all-the-rules) | 
-
-
 # Belenus - letras das músicas ensaiadas
 
 [Come Together](#come-together) |
@@ -2286,7 +2249,7 @@ And I never lost one minute of sleepin' \
 I weren't worryin' 'bout the way that things might have been
 
 Big wheel, keep on turnin' \
-Proud Mary, keep on burnin' \
+Proud Mary, keep on burnin' 
 
 And we're rollin' (rolling) (ooh) \
 Rollin', yeah (rollin') (ooh) \
@@ -2320,6 +2283,8 @@ Rollin' on the river \
 Said we rollin', rollin' \
 Rollin' on the river
 
+Dup-dup-dup-dup \
+Dup-dup-dup-dup \
 Alright
 
 Oh, I cleaned a lot of plates in Memphis, y'all \
