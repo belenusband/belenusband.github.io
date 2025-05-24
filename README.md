@@ -8,22 +8,38 @@ Nos encontre no [Instagram](https://www.instagram.com/belenusband/)
 [John Bechara](https://www.instagram.com/john__bechara/) - Guitarra \
 [Eliane Kobayakawa](https://www.instagram.com/elicrisko/) - Vocal 
 
-# Belenus - ensaio 23/03/2025
+# Belenus - setlist Cardeal
 
-[Should I Stay Or Should I Go](#should-i-stay-or-should-i-go) |
-[Proud Mary](#proud-mary) |
-[Give Love A Bad Name](#you-give-love-a-bad-name) |
-[Dream On](#dream-on) | 
-[Wish You Were Here](#wish-you-were-here) | 
-[Heaven](#heaven) | 
-[Alive](#alive) | 
-[Suspicious Minds] |
-[Because The Night](#because-the-night) | 
-[Aluga-se](#aluga-se) | 
+
+[I Hate Myself For Loving You](#i-hate-myself-for-loving-you) |
+
+[Heroes] | 
+[Come Together](#come-together) | 
+[Sunshine Of Your Love](#sunshine-of-your-love) | 
 [Agora Só Falta Você](#agora-só-falta-você) | 
-[Malandragem](#malandragem) | 
-[32 Dentes](#32-dentes) | 
+[Suspicious Minds] | 
+[Listen To The Music](#listen-to-the-music) | 
+[Because The Night](#because-the-night) | 
+[Behind Blue Eyes](#behind-blue-eyes) | 
+[Proud Mary](#proud-mary) | 
 [Blues da Piedade](#blues-da-piedade) | 
+[Zombie](#zombie) | 
+[What's Up?](#whats-up) | 
+[Alive](#alive) | 
+
+[Give Love A Bad Name](#you-give-love-a-bad-name) | 
+[32 Dentes](#32-dentes) | 
+[Psycho Killer](#psycho-killer) | 
+[Stand By Me](#stand-by-me) | 
+[Dream On](#dream-on) | 
+[Malandragem](#malandragem) | 
+[Wish You Were Here](#wish-you-were-here) | 
+[All Right Now](#all-right-now) | 
+[Easy Lover](#easy-lover) | 
+[Aluga-se](#aluga-se) | 
+[Perfect Strangers](#perfect-strangers) | 
+[Breaking All The Rules](#breaking-all-the-rules) | 
+[Jumpin' Jack Flash](#jumpin-jack-flash) | 
 
 # Belenus - letras das músicas ensaiadas
 
@@ -154,7 +170,7 @@ Come together, *yeah
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
-[setlist](#belenus---1o-set---15022025)
+[setlist](#belenus---setlist-cardeal)
  
 
 ### Sunshine Of Your Love 
@@ -202,7 +218,7 @@ In the sunshine of your love
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
  
-[setlist](#belenus---1o-set---15022025)
+[setlist](#belenus---setlist-cardeal)
 
 
 ### Listen To The Music 
@@ -262,7 +278,7 @@ All the time
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
  
-[setlist](#belenus---1o-set---15022025)
+[setlist](#belenus---setlist-cardeal)
 
 
 ### Behind Blue Eyes 
@@ -319,7 +335,7 @@ Behind blue eyes
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
  
-[setlist](#belenus---2o-set---15022025)
+[setlist](#belenus---setlist-cardeal)
 
 
 ### I Hate Myself For Loving You 
@@ -384,7 +400,7 @@ I hate myself for loving you
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
-[setlist](#belenus---1o-set---15022025)
+[setlist](#belenus---setlist-cardeal)
  
 
 ### Because The Night 
@@ -453,9 +469,7 @@ Because the night belongs to lovers
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
  
-[setlist](#belenus---1o-set---15022025)
-
-[ensaio](#belenus---ensaio-23032025)
+[setlist](#belenus---setlist-cardeal)
 
 ### Jumpin' Jack Flash 
 #### The Rolling Stones
@@ -493,7 +507,7 @@ Jumpin' Jack Flash, it's a gas
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
  
-[setlist](#belenus---1o-set---15022025)
+[setlist](#belenus---setlist-cardeal)
 
 
 ### Whiskey In The Jar 
@@ -542,7 +556,6 @@ Musha ring, dum-a-doo dum-a-da
  
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
-[setlist](#belenus---1o-set---15022025)
 
 
 ### Man in the Box
@@ -598,7 +611,6 @@ Dahhh ahh rahh ahh rahhh rahhh rahhh raaww
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
  
-[setlist](#belenus---1o-set---15022025)
 
 
 ### Zombie
@@ -646,7 +658,7 @@ Oh-oh-oh-oh-oh-oh-oh, eh-eh oh, ya-ya
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
-[setlist](#belenus---1o-set---15022025)
+[setlist](#belenus---setlist-cardeal)
 
 
 ### What's Up?
@@ -733,7 +745,7 @@ For a destination
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
  
-[setlist](#belenus---1o-set---15022025)
+[setlist](#belenus---setlist-cardeal)
 
 ### All Right Now
 #### Free
@@ -792,7 +804,7 @@ All right now, baby, it's all right now
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
  
-[setlist](#belenus---2o-set---15022025)
+[setlist](#belenus---setlist-cardeal)
 
 
 ### Easy Lover 
@@ -884,7 +896,7 @@ Before you know it you'll be on your knees \
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
-[setlist](#belenus---2o-set---15022025)
+[setlist](#belenus---setlist-cardeal)
  
 
 ### Perfect Strangers
@@ -923,7 +935,7 @@ We must remain perfect strangers
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
-[setlist](#belenus---2o-set---15022025)
+[setlist](#belenus---setlist-cardeal)
  
 
 ### Breaking All The Rules
@@ -965,7 +977,7 @@ Never choosing to be fools
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
-[setlist](#belenus---2o-set---15022025)
+[setlist](#belenus---setlist-cardeal)
  
 
 ### Alive
@@ -1020,9 +1032,7 @@ Ooh yeah, yeah yeah yeah
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
  
-[setlist](#belenus---2o-set---15022025)
-
-[ensaio](#belenus---ensaio-23032025)
+[setlist](#belenus---setlist-cardeal)
 
 ### Stand By Me
 #### Ben E. King
@@ -1067,7 +1077,7 @@ Stand by me
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
-[setlist](#belenus---2o-set---15022025)
+[setlist](#belenus---setlist-cardeal)
 
 
 ### Synchronicity II
@@ -1251,7 +1261,7 @@ Oh, oh, oh, oh, aye-ya-ya-ya-ya
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
-[setlist](#belenus---1o-set---15022025)
+[setlist](#belenus---setlist-cardeal)
 
 
 ### Wish You Were Here
@@ -1287,9 +1297,7 @@ Wish you were here
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
-[setlist](#belenus---2o-set---15022025)
-
-[ensaio](#belenus---ensaio-23032025)
+[setlist](#belenus---setlist-cardeal)
 
 ### Aluga-se
 #### Raul Seixas
@@ -1360,9 +1368,7 @@ Nós não vamo paga nada!
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
-[setlist](#belenus---2o-set---15022025)
-
-[ensaio](#belenus---ensaio-23032025)
+[setlist](#belenus---setlist-cardeal)
 
 
 ### Agora Só Falta Você
@@ -1414,9 +1420,7 @@ Agora só falta você
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
-[setlist](#belenus---1o-set---15022025)
-
-[ensaio](#belenus---ensaio-23032025)
+[setlist](#belenus---setlist-cardeal)
 
 ### Malandragem
 #### Cássia Eller
@@ -1473,9 +1477,7 @@ Quem sabe eu ainda sou uma garotinha!
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
-[setlist](#belenus---2o-set---15022025)
-
-[ensaio](#belenus---ensaio-23032025)
+[setlist](#belenus---setlist-cardeal)
 
 ### Blues da Piedade
 #### Cazuza
@@ -1538,9 +1540,7 @@ Ah, ah, lhes dê grandeza e um pouco de coragem
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
-[setlist](#belenus---2o-set---15022025)
-
-[ensaio](#belenus---ensaio-23032025)
+[setlist](#belenus---setlist-cardeal)
 
 ### Dream On
 #### Aerosmith
@@ -1592,9 +1592,7 @@ Maybe tomorrow the good Lord will take you away
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
-[setlist](#belenus---2o-set---15022025)
-
-[ensaio](#belenus---ensaio-23032025)
+[setlist](#belenus---setlist-cardeal)
 
 ### Heaven
 #### Bryan Adams
@@ -1661,9 +1659,7 @@ You're all that I need
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
-[setlist](#belenus---2o-set---15022025)
-
-[ensaio](#belenus---ensaio-23032025)
+[setlist](#belenus---setlist-cardeal)
 
 ### Amor
 #### Secos & Molhados
@@ -1756,9 +1752,7 @@ Não confio em ninguém com 32 dentes
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
-[setlist](#belenus---1o-set---15022025)
-
-[ensaio](#belenus---ensaio-23032025)
+[setlist](#belenus---setlist-cardeal)
 
 ### Fátima
 #### Capital Inicial
@@ -1901,7 +1895,6 @@ Should I stay or should I go?
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
-[ensaio](#belenus---ensaio-23032025)
 
 
 ### You Give Love a Bad Name
@@ -1979,9 +1972,7 @@ You give love
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
-[setlist](#belenus---2o-set---15022025)
-
-[ensaio](#belenus---ensaio-23032025)
+[setlist](#belenus---setlist-cardeal)
 
 ### Have You Ever Seen The Rain?
 #### Creedence Clearwater Revival
@@ -2023,7 +2014,7 @@ Comin' down on a sunny day?
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
-[setlist](#belenus---2o-set---15022025)
+[setlist](#belenus---setlist-cardeal)
 
 
 ### Middle of the Road
@@ -2335,7 +2326,7 @@ Yeah, alright, uh-huh
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
-[ensaio](#belenus---ensaio-23032025)
+[setlist](#belenus---setlist-cardeal)
 
 ### I Don't Wanna Lose You
 #### Tina Turner
