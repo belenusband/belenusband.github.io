@@ -8,35 +8,20 @@ Nos encontre no [Instagram](https://www.instagram.com/belenusband/)
 [John Bechara](https://www.instagram.com/john__bechara/) - Guitarra \
 [Eliane Kobayakawa](https://www.instagram.com/elicrisko/) - Vocal 
 
-# Belenus - setlist Cardeal
+# Belenus - setlist LIG Chopp
 
-
-[I Hate Myself For Loving You](#i-hate-myself-for-loving-you) |
-
-[Heroes] | 
 [Come Together](#come-together) | 
 [Sunshine Of Your Love](#sunshine-of-your-love) | 
-[Agora Só Falta Você](#agora-só-falta-você) | 
-[Suspicious Minds] | 
 [Listen To The Music](#listen-to-the-music) | 
+[I Hate Myself For Loving You](#i-hate-myself-for-loving-you) |
 [Because The Night](#because-the-night) | 
 [Behind Blue Eyes](#behind-blue-eyes) | 
-[Proud Mary](#proud-mary) | 
-[Blues da Piedade](#blues-da-piedade) | 
 [Zombie](#zombie) | 
 [What's Up?](#whats-up) | 
 [Alive](#alive) | 
-
 [Give Love A Bad Name](#you-give-love-a-bad-name) | 
-[32 Dentes](#32-dentes) | 
 [Psycho Killer](#psycho-killer) | 
 [Stand By Me](#stand-by-me) | 
-[Dream On](#dream-on) | 
-[Malandragem](#malandragem) | 
-[Wish You Were Here](#wish-you-were-here) | 
-[All Right Now](#all-right-now) | 
-[Easy Lover](#easy-lover) | 
-[Aluga-se](#aluga-se) | 
 [Perfect Strangers](#perfect-strangers) | 
 [Breaking All The Rules](#breaking-all-the-rules) | 
 [Jumpin' Jack Flash](#jumpin-jack-flash) | 
