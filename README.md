@@ -10,12 +10,10 @@ Nos encontre no [Instagram](https://www.instagram.com/belenusband/)
 
 # Belenus - setlist LIG Chopp
 
-[Come Together](#come-together) | 
-[Sunshine Of Your Love](#sunshine-of-your-love) | 
 [Listen To The Music](#listen-to-the-music) | 
+[Sunshine Of Your Love](#sunshine-of-your-love) | 
 [I Hate Myself For Loving You](#i-hate-myself-for-loving-you) |
 [Because The Night](#because-the-night) | 
-[Behind Blue Eyes](#behind-blue-eyes) | 
 [Zombie](#zombie) | 
 [What's Up?](#whats-up) | 
 [Alive](#alive) | 
@@ -155,7 +153,7 @@ Come together, *yeah
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
-[setlist](#belenus---setlist-cardeal)
+[setlist](#belenus---setlist-lig-chopp)
  
 
 ### Sunshine Of Your Love 
