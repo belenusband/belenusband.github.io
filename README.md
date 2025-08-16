@@ -200,8 +200,6 @@ To be where I'm going \
 In the sunshine of your love
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
- 
-[setlist](#belenus---setlist-cardeal)
 
 
 ### Listen To The Music 
@@ -261,7 +259,7 @@ All the time
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
  
-[setlist](#belenus---setlist-cardeal)
+[setlist](#belenus---setlist-lig-chopp)
 
 
 ### Behind Blue Eyes 
@@ -317,8 +315,6 @@ To be the sad man \
 Behind blue eyes
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
- 
-[setlist](#belenus---setlist-cardeal)
 
 
 ### I Hate Myself For Loving You 
@@ -383,7 +379,7 @@ I hate myself for loving you
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
-[setlist](#belenus---setlist-cardeal)
+[setlist](#belenus---setlist-lig-chopp)
  
 
 ### Because The Night 
@@ -452,7 +448,7 @@ Because the night belongs to lovers
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
  
-[setlist](#belenus---setlist-cardeal)
+[setlist](#belenus---setlist-lig-chopp)
 
 ### Jumpin' Jack Flash 
 #### The Rolling Stones
@@ -490,7 +486,7 @@ Jumpin' Jack Flash, it's a gas
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
  
-[setlist](#belenus---setlist-cardeal)
+[setlist](#belenus---setlist-lig-chopp)
 
 
 ### Whiskey In The Jar 
@@ -641,7 +637,7 @@ Oh-oh-oh-oh-oh-oh-oh, eh-eh oh, ya-ya
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
-[setlist](#belenus---setlist-cardeal)
+[setlist](#belenus---setlist-lig-chopp)
 
 
 ### What's Up?
@@ -728,7 +724,7 @@ For a destination
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
  
-[setlist](#belenus---setlist-cardeal)
+[setlist](#belenus---setlist-lig-chopp)
 
 ### All Right Now
 #### Free
@@ -787,7 +783,7 @@ All right now, baby, it's all right now
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
  
-[setlist](#belenus---setlist-cardeal)
+[setlist](#belenus---setlist-lig-chopp)
 
 
 ### Easy Lover 
@@ -879,7 +875,7 @@ Before you know it you'll be on your knees \
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
-[setlist](#belenus---setlist-cardeal)
+[setlist](#belenus---setlist-lig-chopp)
  
 
 ### Perfect Strangers
@@ -918,7 +914,7 @@ We must remain perfect strangers
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
-[setlist](#belenus---setlist-cardeal)
+[setlist](#belenus---setlist-lig-chopp)
  
 
 ### Breaking All The Rules
@@ -960,7 +956,7 @@ Never choosing to be fools
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
-[setlist](#belenus---setlist-cardeal)
+[setlist](#belenus---setlist-lig-chopp)
  
 
 ### Alive
@@ -1015,7 +1011,7 @@ Ooh yeah, yeah yeah yeah
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
  
-[setlist](#belenus---setlist-cardeal)
+[setlist](#belenus---setlist-lig-chopp)
 
 ### Stand By Me
 #### Ben E. King
@@ -1060,7 +1056,7 @@ Stand by me
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
-[setlist](#belenus---setlist-cardeal)
+[setlist](#belenus---setlist-lig-chopp)
 
 
 ### Synchronicity II
@@ -1244,7 +1240,7 @@ Oh, oh, oh, oh, aye-ya-ya-ya-ya
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
-[setlist](#belenus---setlist-cardeal)
+[setlist](#belenus---setlist-lig-chopp)
 
 
 ### Wish You Were Here
@@ -1280,7 +1276,7 @@ Wish you were here
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
-[setlist](#belenus---setlist-cardeal)
+[setlist](#belenus---setlist-lig-chopp)
 
 ### Aluga-se
 #### Raul Seixas
@@ -1351,7 +1347,7 @@ Nós não vamo paga nada!
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
-[setlist](#belenus---setlist-cardeal)
+[setlist](#belenus---setlist-lig-chopp)
 
 
 ### Agora Só Falta Você
@@ -1403,7 +1399,7 @@ Agora só falta você
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
-[setlist](#belenus---setlist-cardeal)
+[setlist](#belenus---setlist-lig-chopp)
 
 ### Malandragem
 #### Cássia Eller
@@ -1460,7 +1456,7 @@ Quem sabe eu ainda sou uma garotinha!
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
-[setlist](#belenus---setlist-cardeal)
+[setlist](#belenus---setlist-lig-chopp)
 
 ### Blues da Piedade
 #### Cazuza
@@ -1523,7 +1519,7 @@ Ah, ah, lhes dê grandeza e um pouco de coragem
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
-[setlist](#belenus---setlist-cardeal)
+[setlist](#belenus---setlist-lig-chopp)
 
 ### Dream On
 #### Aerosmith
@@ -1575,7 +1571,7 @@ Maybe tomorrow the good Lord will take you away
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
-[setlist](#belenus---setlist-cardeal)
+[setlist](#belenus---setlist-lig-chopp)
 
 ### Heaven
 #### Bryan Adams
@@ -1642,7 +1638,7 @@ You're all that I need
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
-[setlist](#belenus---setlist-cardeal)
+[setlist](#belenus---setlist-lig-chopp)
 
 ### Amor
 #### Secos & Molhados
@@ -1735,7 +1731,7 @@ Não confio em ninguém com 32 dentes
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
-[setlist](#belenus---setlist-cardeal)
+[setlist](#belenus---setlist-lig-chopp)
 
 ### Fátima
 #### Capital Inicial
@@ -1955,7 +1951,7 @@ You give love
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
-[setlist](#belenus---setlist-cardeal)
+[setlist](#belenus---setlist-lig-chopp)
 
 ### Have You Ever Seen The Rain?
 #### Creedence Clearwater Revival
@@ -1997,7 +1993,7 @@ Comin' down on a sunny day?
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
-[setlist](#belenus---setlist-cardeal)
+[setlist](#belenus---setlist-lig-chopp)
 
 
 ### Middle of the Road
@@ -2309,7 +2305,7 @@ Yeah, alright, uh-huh
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
-[setlist](#belenus---setlist-cardeal)
+[setlist](#belenus---setlist-lig-chopp)
 
 ### I Don't Wanna Lose You
 #### Tina Turner
