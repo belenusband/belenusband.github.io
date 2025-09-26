@@ -10,25 +10,25 @@ Nos encontre no [Instagram](https://www.instagram.com/belenusband/)
 
 # Belenus - setlist LIG Chopp
 
-[Come Together](#come-together) |
+[Come Together](#come-together) | 
 [Listen To The Music](#listen-to-the-music) | 
-Suspicious Minds
+Suspicious Minds | 
 [Agora Só Falta Você](#agora-só-falta-você) | 
 [Sunshine Of Your Love](#sunshine-of-your-love) | 
-[I Hate Myself For Loving You](#i-hate-myself-for-loving-you) |
-[Behind Blue Eyes](#behind-blue-eyes) |
+[I Hate Myself For Loving You](#i-hate-myself-for-loving-you) | 
+[Behind Blue Eyes](#behind-blue-eyes) | 
 [Because The Night](#because-the-night) | 
-Heroes
+Heroes | 
 [Zombie](#zombie) | 
 [What's Up?](#whats-up) | 
-[Whiskey In The Jar](#whiskey-in-the-jar) |
-[Man in the Box](#man-in-the-box) |
+[Whiskey In The Jar](#whiskey-in-the-jar) | 
+[Man in the Box](#man-in-the-box) | 
 
 [Give Love A Bad Name](#you-give-love-a-bad-name) | 
 [Psycho Killer](#psycho-killer) | 
 [Blues da Piedade](#blues-da-piedade) | 
-[Easy Lover](#easy-lover) |
-[All Right Now](#all-right-now) |
+[Easy Lover](#easy-lover) | 
+[All Right Now](#all-right-now) | 
 [Malandragem](#malandragem) | 
 [Dream On](#dream-on) | 
 [Stand By Me](#stand-by-me) | 
@@ -73,16 +73,16 @@ Heroes
 [32 Dentes](#32-dentes) | 
 [Fátima](#fátima) |
 
-[Should I Stay Or Should I Go](#should-i-stay-or-should-i-go) |
-[Have You Even Seen The Rain](#have-you-ever-seen-the-rain) |
-[Changes](#changes) |
-[Give Love A Bad Name](#you-give-love-a-bad-name) |
-[Middle Of The Road](#middle-of-the-road) |
-[Love Ain't No Stranger](#love-aint-no-stranger) |
-[Live And Let Die](#live-and-let-die) |
-[Pro Dia Nascer Feliz](#pro-dia-nascer-feliz) |
-[Proud Mary](#proud-mary) |
-[Mercedez Benz](#mercedez-benz) |
+[Should I Stay Or Should I Go](#should-i-stay-or-should-i-go) | 
+[Have You Even Seen The Rain](#have-you-ever-seen-the-rain) | 
+[Changes](#changes) | 
+[Give Love A Bad Name](#you-give-love-a-bad-name) | 
+[Middle Of The Road](#middle-of-the-road) | 
+[Love Ain't No Stranger](#love-aint-no-stranger) | 
+[Live And Let Die](#live-and-let-die) | 
+[Pro Dia Nascer Feliz](#pro-dia-nascer-feliz) | 
+[Proud Mary](#proud-mary) | 
+[Mercedez Benz](#mercedez-benz) | 
 
 
 # Querigma - letras das bandas de alunos
