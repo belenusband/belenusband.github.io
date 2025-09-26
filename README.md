@@ -10,16 +10,30 @@ Nos encontre no [Instagram](https://www.instagram.com/belenusband/)
 
 # Belenus - setlist LIG Chopp
 
+[Come Together](#come-together) |
 [Listen To The Music](#listen-to-the-music) | 
+Suspicious Minds
+[Agora Só Falta Você](#agora-só-falta-você) | 
 [Sunshine Of Your Love](#sunshine-of-your-love) | 
 [I Hate Myself For Loving You](#i-hate-myself-for-loving-you) |
+[Behind Blue Eyes](#behind-blue-eyes) |
 [Because The Night](#because-the-night) | 
+Heroes
 [Zombie](#zombie) | 
 [What's Up?](#whats-up) | 
-[Alive](#alive) | 
+[Whiskey In The Jar](#whiskey-in-the-jar) |
+[Man in the Box](#man-in-the-box) |
+
 [Give Love A Bad Name](#you-give-love-a-bad-name) | 
 [Psycho Killer](#psycho-killer) | 
+[Blues da Piedade](#blues-da-piedade) | 
+[Easy Lover](#easy-lover) |
+[All Right Now](#all-right-now) |
+[Malandragem](#malandragem) | 
+[Dream On](#dream-on) | 
 [Stand By Me](#stand-by-me) | 
+[Alive](#alive) | 
+[Aluga-se](#aluga-se) | 
 [Perfect Strangers](#perfect-strangers) | 
 [Breaking All The Rules](#breaking-all-the-rules) | 
 [Jumpin' Jack Flash](#jumpin-jack-flash) | 
@@ -68,6 +82,7 @@ Nos encontre no [Instagram](https://www.instagram.com/belenusband/)
 [Live And Let Die](#live-and-let-die) |
 [Pro Dia Nascer Feliz](#pro-dia-nascer-feliz) |
 [Proud Mary](#proud-mary) |
+[Mercedez Benz](#mercedez-benz) |
 
 
 # Querigma - letras das bandas de alunos
@@ -201,6 +216,7 @@ In the sunshine of your love
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
+[setlist](#belenus---setlist-lig-chopp)
 
 ### Listen To The Music 
 #### Doobie Brothers
@@ -316,6 +332,7 @@ Behind blue eyes
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
+[setlist](#belenus---setlist-lig-chopp)
 
 ### I Hate Myself For Loving You 
 #### Joan Jett & the Blackhearts
@@ -535,7 +552,7 @@ Musha ring, dum-a-doo dum-a-da
  
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
-
+[setlist](#belenus---setlist-lig-chopp)
 
 ### Man in the Box
 #### Alice In Chains
@@ -590,7 +607,7 @@ Dahhh ahh rahh ahh rahhh rahhh rahhh raaww
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
  
-
+[setlist](#belenus---setlist-lig-chopp)
 
 ### Zombie
 #### The Cranberries
@@ -2306,6 +2323,47 @@ Yeah, alright, uh-huh
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
 [setlist](#belenus---setlist-lig-chopp)
+
+
+### Mercedes Benz
+#### Janis Joplin
+
+I'd like to do a song \
+Of a great social and poetical import \
+It goes like this \
+
+Oh Lord, won't you buy me a Mercedes-Benz? \
+My friends all drive Porsches \
+I must make amends \
+Worked hard all my lifetime \
+No help from my friends \
+So Lord, won't you buy me a Mercedes-Benz?
+
+Oh Lord, won't you buy me a color TV? \
+Dialing for Dollars' is trying to find me \
+I wait for delivery each day until three \
+So Lord, won't you buy me a color TV?
+
+Oh Lord, won't you buy me a night on the town? \
+I'm counting on you, Lord \
+Please don't let me down \
+Prove that you love me and buy the next round \
+Oh Lord, won't you buy me a night on the town?
+
+Everybody!
+
+Oh Lord, won't you buy me a Mercedes-Benz? \
+My friends all drive Porsches \
+I must make amends \
+Worked hard all my lifetime \ 
+No help from my friends \
+So Lord, won't you buy me a Mercedes-Benz?
+
+That's it!
+
+
+
+[índice](#belenus---letras-das-músicas-ensaiadas)
 
 ### I Don't Wanna Lose You
 #### Tina Turner
