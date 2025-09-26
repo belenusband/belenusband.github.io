@@ -82,7 +82,7 @@ Heroes |
 [Live And Let Die](#live-and-let-die) | 
 [Pro Dia Nascer Feliz](#pro-dia-nascer-feliz) | 
 [Proud Mary](#proud-mary) | 
-[Mercedez Benz](#mercedez-benz) | 
+[Mercedes Benz](#mercedes-benz) | 
 
 
 # Querigma - letras das bandas de alunos
