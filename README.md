@@ -1305,7 +1305,7 @@ Wish you were here
 ### Aluga-se
 #### Raul Seixas
 
-(entrar no fim do 4o compasso)
+(entrar no fim do 4o compasso) \ 
 A solução pro nosso povo eu vou dá \
 Negócio bom assim ninguém nunca viu \
 Tá tudo pronto aqui, é só vim pegar \
@@ -1330,9 +1330,9 @@ Nós não vamo paga nada \
 Tá na hora agora é free \
 Vamo embora dá lugar pros gringo entrar \
 Pois esse imóvel está pra alugar \
-Alugar! Ei! \
+Alugar! Ei! \ 
 (solo) \ 
-Grande solução! \
+Grande solução! \ 
 Ei!
 
 Nós não vamo paga nada \
