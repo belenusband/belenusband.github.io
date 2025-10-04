@@ -1380,7 +1380,7 @@ Nós não vamo paga nada!
 ### Agora Só Falta Você
 #### Rita Lee
 
-(entrar depois de 3 notas)
+(entrar depois de 3 notas) \
 Um belo dia resolvi mudar \
 E fazer tudo o que eu queria fazer \
 Me libertei daquela vida vulgar \
@@ -1396,7 +1396,7 @@ Um belo dia vou lhe telefonar \
 Pra lhe dizer que aquele sonho cresceu \
 No ar que eu respiro \
 Eu sinto prazer \
-De ser quem eu sou \ 
+De ser quem eu sou \
 De estar onde estou \
 Agora só falta você
 
@@ -1432,7 +1432,7 @@ Agora só falta você!
 ### Malandragem
 #### Cássia Eller
 
-(entrar sozinha)
+(entrar sozinha) \
 Quem sabe eu ainda sou uma garotinha \
 Esperando o ônibus da escola, sozinha \
 Cansada com minhas meias três quartos \
@@ -1450,7 +1450,7 @@ E não conheço a verdade \
 Eu sou poeta e não aprendi a amar \
 Eu sou poeta e não aprendi a amar
 
-(sem intervalo)
+(sem intervalo) \
 Bobeira é não viver a realidade \
 E eu ainda tenho uma tarde inteira \
 Eu ando nas ruas \
