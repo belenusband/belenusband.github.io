@@ -24,6 +24,7 @@ Heroes |
 [Whiskey In The Jar](#whiskey-in-the-jar) | 
 [Man in the Box](#man-in-the-box) | 
 
+[Mercedes Benz](#mercedes-benz) | 
 [Give Love A Bad Name](#you-give-love-a-bad-name) | 
 [Psycho Killer](#psycho-killer) | 
 [Blues da Piedade](#blues-da-piedade) | 
@@ -695,6 +696,9 @@ And I sing, hey, yeah, yeah-eah \
 Hey, yeah, yeah \
 I said, hey! What's going on?
 
+Oohh, oohhh, oh oh oh oh ohhh, oh oh oh ohhhhh \ 
+Oohh, oohhh, oh oh oh oh ohhh, oh oh oh ohhhhh
+
 And I try, oh, my God, do I try \
 I try all the time \
 In this institution
@@ -732,6 +736,9 @@ I said, hey! What's goin' on?
 And I sing, hey, yeah, yeah-eah \
 Hey, yeah, yeah, yeah, yeah \
 I said, hey! What's going on?
+
+Oohh, oohhh, oh oh oh oh ohhh, oh oh oh ohhhhh \ 
+Aaahh
 
 Twenty-five years \
 And my life is still \
@@ -1298,6 +1305,7 @@ Wish you were here
 ### Aluga-se
 #### Raul Seixas
 
+(entrar no fim do 4o compasso)
 A solução pro nosso povo eu vou dá \
 Negócio bom assim ninguém nunca viu \
 Tá tudo pronto aqui, é só vim pegar \
@@ -1323,7 +1331,9 @@ Tá na hora agora é free \
 Vamo embora dá lugar pros gringo entrar \
 Pois esse imóvel está pra alugar \
 Alugar! Ei! \
-Grande solução!
+(solo) \ 
+Grande solução! \
+Ei!
 
 Nós não vamo paga nada \
 Nós não vamo paga nada \
@@ -1370,6 +1380,7 @@ Nós não vamo paga nada!
 ### Agora Só Falta Você
 #### Rita Lee
 
+(entrar depois de 3 notas)
 Um belo dia resolvi mudar \
 E fazer tudo o que eu queria fazer \
 Me libertei daquela vida vulgar \
@@ -1409,10 +1420,10 @@ Eu sinto prazer \
 De ser quem eu sou \
 De estar onde estou
 
+Agora só falta você ie ieee \
 Agora só falta você \
-Agora só falta você \
-Agora só falta você \
-Agora só falta você
+Agora só falta você ie ieee \
+Agora só falta você!
 
 [índice](#belenus---letras-das-músicas-ensaiadas)
 
@@ -1421,6 +1432,7 @@ Agora só falta você
 ### Malandragem
 #### Cássia Eller
 
+(entrar sozinha)
 Quem sabe eu ainda sou uma garotinha \
 Esperando o ônibus da escola, sozinha \
 Cansada com minhas meias três quartos \
@@ -1438,6 +1450,7 @@ E não conheço a verdade \
 Eu sou poeta e não aprendi a amar \
 Eu sou poeta e não aprendi a amar
 
+(sem intervalo)
 Bobeira é não viver a realidade \
 E eu ainda tenho uma tarde inteira \
 Eu ando nas ruas \
@@ -1454,12 +1467,14 @@ E não conheço a verdade \
 Eu sou poeta e não aprendi a amar \
 Eu sou poeta e não aprendi a amar
 
+(solo 1 compasso)
+
 Eu ando nas ruas \
 Eu troco um cheque \
 Mudo uma planta de lugar \
 Dirijo meu carro \
 Tomo o meu pileque \
-E ainda tenho tempo pra cantar
+E ainda tenho tempo pra cantar, pra cantar
 
 Eu só peço a Deus \
 Um pouco de malandragem \
