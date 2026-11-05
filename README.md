@@ -92,6 +92,7 @@ Heroes |
 [Heathens](#heathens) |
 [Rock You Like a Hurricane](#rock-you-like-a-hurricane) |
 [Sweet Child O'Mine](#sweet-child-o-mine) |
+[A Tale That Wasn't Right](#a-tale-that-wasnt-right) |
 
 
 ### Come Together 
@@ -2645,3 +2646,47 @@ Sweet child of mine
 
 
 [índice](#querigma---letras-das-bandas-de-alunos)
+
+
+
+### A Tale That Wasn't Right
+#### Helloween
+
+Here I stand all alone \
+Have my mind turned to stone \
+Have my heart filled up with ice \
+To avoid its breakin' twice
+
+Thanks to you, my dear old friend \
+But you can't help, this is the end \
+Of a tale that wasn't right \
+I will have no sleep tonight
+
+In my heart, in my soul \
+I really hate to pay this toll \
+Should be strong, young and bold \
+But the only thing I feel is pain
+
+It's alright, we'll stay friends \
+Trustin' in my confidence \
+And let's say it's just alright \
+You won't sleep alone tonight
+
+In my heart, in my soul \
+I really hate to pay this toll \
+Should be strong, young and bold \
+But the only thing I feel is pain
+
+With my heart, with my soul \
+Some guys cry you bought and sold \
+They've been strong, young and bold \
+And they say, play this song again
+
+In my heart, in my soul \
+I really hate to pay this toll \
+Should be strong, young and bold \
+But the only thing I feel is pain
+
+
+[índice](#querigma---letras-das-bandas-de-alunos)
+
